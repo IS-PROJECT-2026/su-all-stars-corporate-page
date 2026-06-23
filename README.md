@@ -15,6 +15,6 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Philip [Last Name]** - [Executive Title]
 
-**Bhavin Mepani** - Managing Director
+**Bhavin Mepani** - Board Director
 
 **Austin [Last Name]** - [Executive Title]
