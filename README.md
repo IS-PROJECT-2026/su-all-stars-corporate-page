@@ -13,7 +13,7 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Hope [Last Name]** - [Executive Title]
 
-**Philip [Last Name]** - [Executive Title]
+**Philip Omwanda** - Chief Operating Officer 
 
 **Bhavin Mepani** - Board Director
 
