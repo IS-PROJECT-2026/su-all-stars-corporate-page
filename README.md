@@ -15,6 +15,6 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Philip Omwanda** - Chief Operating Officer 
 
-**Bhavin Mepani** - Board Director
+**Bhavin Mepani** - Board Director and Managing Director 
 
 **Austin [Last Name]** - [Executive Title]
