@@ -17,4 +17,4 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Bhavin Mepani** - Board Director and Managing Director 
 
-**Austin [Last Name]** - [Executive Title]
+**Austin Kimathi** - Chief Revenue Officer
