@@ -9,7 +9,7 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Samuel Mwesigwa** - Chief Executive Officer
 
-**Robby [Last Name]** - [Executive Title]
+**Robby Muhia** - Maximizing Shareholder Value
 
 **Hope Wanjohi** - Chief Product Officer
 
