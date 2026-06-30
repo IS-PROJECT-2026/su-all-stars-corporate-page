@@ -11,7 +11,7 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 **Robby [Last Name]** - [Executive Title]
 
-**Hope [Last Name]** - [Executive Title]
+**Hope Wanjohi** - Chief Product Officer
 
 **Philip Omwanda** - Chief Operating Officer 
 
