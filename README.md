@@ -7,7 +7,7 @@ NexCore Systems architects distributed infrastructure and intelligent software s
 
 ## Executive Roster
 
-**Samuel Mwesigwa** - Chief Executive Officer
+**Samuel Mwesigwa** - Chief Finance Officer
 
 **Robby [Last Name]** - [Executive Title]
 
